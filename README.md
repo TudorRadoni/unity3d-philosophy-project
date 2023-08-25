@@ -42,7 +42,7 @@ La finalul jocului se găsesc atât sitografia, cât și bibliografia, urmate de
 Vă rugăm să o luați, cu atenție, de la capăt.
 
 Dacă întâmpinați orice fel de problemă, contactați-mă la:
-0772 295 994 (Rădoni Tudor, cls. a XII-a A)
+07** *** *** (Rădoni Tudor, cls. a XII-a A)
 
 Mulțumim și distracție plăcută!
 
